@@ -1,4 +1,4 @@
-# Tala-Capital-Insights - Finance Portfolio
+# Talah-Capital-Insights - Finance Portfolio
 
 Aspiring Finance Analyst with a strong interest in investment analysis, portfolio management, and financial modeling.
 
